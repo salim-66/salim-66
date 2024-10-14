@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @salim-66
-- 👀 I’m interested in ...
+- 👀 I’m interested in ... programming and ready to learn
 - 🌱 I’m currently learning ... and also looking for a mentor
 - 💞️ I’m looking to collaborate with any one who will help me improve
 - 📫 How to reach me ... you can send me an email
